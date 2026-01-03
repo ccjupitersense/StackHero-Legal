@@ -30,4 +30,4 @@ StackHero is an independent educational tool.
 We may update Our Privacy Policy from time to time. We will notify You of any changes by posting the new Privacy Policy on this page.
 7. Contact Us
 If you have any questions about this Privacy Policy, You can contact us:
-⦁	By email: [ccjupitersense@gmail.com]
+⦁	By email: [ccjupiteresense@gmail.com]
