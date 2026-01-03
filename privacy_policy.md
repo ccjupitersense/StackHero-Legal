@@ -46,4 +46,4 @@ We may update Our Privacy Policy from time to time. We will notify You of any ch
 
 ## 8. Contact Us
 If you have any questions about this Privacy Policy or wish to exercise your data rights, You can contact us:
-* **By email:** ccjupiteresense@gmail.com
+* **By email:** ccjupitersense@gmail.com
